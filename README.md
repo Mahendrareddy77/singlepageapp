@@ -1,4 +1,4 @@
 # singlepageapp
 my details
 mahendra reddy
-iam from kurnool
+iam from kurnool21232
